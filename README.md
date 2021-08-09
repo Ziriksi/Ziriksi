@@ -1,6 +1,3 @@
-# ⠀
-
-
 Im ziriksi
 
 # Bio
