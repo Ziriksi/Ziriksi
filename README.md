@@ -9,3 +9,6 @@ I’m a 15 year old femboy from Texas. I play video games, mostly Geometry Dash.
 - Discord: @Ziriksi#0001
 - emoji_9 Official Discord Server: [Link](https://discord.gg/Nx6ErvNeQb)
 - Insta: @ziriksi.js
+
+# mecos
+![mecos](https://cdn.discordapp.com/attachments/812568192642711592/874192409964208148/image0.png)
