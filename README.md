@@ -1,7 +1,7 @@
 Im ziriksi
 
 # Bio
-I’m a 15 year old femboy from Texas. I play video games, mostly Geometry Dash. I’m also into video game programming. I know JavaScript and I’m planning to learn C++ when I feel like it. I haven’t made any big games yet but I have a few ideas for an RPG, not 100% sure if I’ll actually be able to produce it though. 
+I’m a 15 year old femboy from Texas. I play video games, mostly Geometry Dash. I’m also into video game programming, though I’m rather inexperienced. I know JavaScript and I’m planning to learn C++ when I feel like it. I haven’t made any big games yet but I have a few ideas for an RPG, not 100% sure if I’ll actually be able to produce it though. 
 
 # Socials
 - Youtube: [Link](https://youtube.com/ziriksi)
